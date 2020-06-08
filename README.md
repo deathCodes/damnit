@@ -1,2 +1,3 @@
 # damnit
-not a serious project!!
+not a serious project!! so leave!!
+
